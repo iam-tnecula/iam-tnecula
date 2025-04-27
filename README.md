@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Theodor Necula
 
-🚀 Cybersecurity | Risk Strategy | Innovation Leadership | Global Readiness
+🚀 Cybersecurity | Risk Strategy | Innovation Leadership
 
 ---
 
