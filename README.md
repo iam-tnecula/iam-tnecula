@@ -10,8 +10,6 @@ I'm a systems-focused strategist passionate about solving complex problems at th
 
 My work spans cybersecurity resilience, systems design thinking, digital transformation leadership, and policy innovation — always with a user-centered mindset.
 
-I’m also preparing to commission as a **U.S. Air Force Cyber/Intelligence Officer** or a **U.S. Navy Information Warfare Officer**, combining technical excellence with mission-driven leadership.
-
 ---
 
 ## 🎯 Current Focus
